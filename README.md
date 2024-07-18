@@ -5,4 +5,5 @@
 - 💬 Ask me about anything in my @mirzakhalov03 telegram
 - 📫 How to reach me: javohirmirzakhalov@gmail.com
 - 😄 Pronouns: He/Him
+- 💫🔥 Check out my portfolio at [mirzakhalov.com](https://www.mirzakhalov.com/)
 
